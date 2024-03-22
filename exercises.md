@@ -149,3 +149,19 @@ I remember how crowded the house had been that day, filled to the brim like a mo
 PROCESS: Use one word from each letter of the alphabet (in order)
 
 A bear can dance every Friday, given he is just kidding. Later, many new observers presented quite readily, seated to unwind very willingly. Xylophones yell zoom!
+
+TAROKO GORGE REMIX - Toy Garbage
+
+What aspects of the remix are the same?
+
+This remix has the same visual structure as the Taroko Gorge, with lines appearing and scrolling/moving upwards towards the top of the screen, until they disappear. Like the Taroko Gorge, you have to read the poem at a fast pace to keep up, because the lines move up and eventually disappear every second or so. 
+
+
+What aspects of the remix are different?
+
+The content of the poem itself is different. Where the Taroko Gorge references the national park in Taiwan, this poem references numerous, toys and games, such as Barbies, Mario Kart, Baby Alive, Mr. Potato Head, Furbies and more. These are all staples of capitalism and mass consumption, and the title of the poem seems to imply that all these toys/games are essentially garbage, in the end. The background colour and font styles are also different. The Takoro Gorge has a dark green background with simple lilac writing, while Toy Garbage has a background with striped pastel colours and uses the childish font style Comic Sans. Reading the Taroko Gorge is a more calming and picturesque experience, while Toy Garage is quite action-packed, almost exploring a war or battle between famous toys and games.
+
+Is the remix successful (why or why not)?
+
+This remix is certainly successful in being a different variation of the Taroko Gorge poem. While retaining similar structural elements, the content and overall appearance is much more chaotic and overstimulating. I found the remix itself to be a fun read, filled with nostalgia for my childhood, and I appreciated all the toy references. Beyond that however, I struggled to connect with the poem or understand what exactly it was trying to say. As previously mentioned, I think it may have something to do with waste and mass consumption, given the title, but this was not exactly clear to me.
+
